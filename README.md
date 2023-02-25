@@ -2,4 +2,4 @@
 
 ## Ekran Görüntüleri
 
-![Uygulama Ekran Görüntüsü](https://i.hizliresim.com/gfs2x9p.jpg)
+![Uygulama Ekran Görüntüsü](https://i.hizliresim.com/5goknnk.jpg)
